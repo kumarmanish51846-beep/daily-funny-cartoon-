@@ -1,1 +1,1 @@
-# daily-funny-cartoon-
+# daily-funny-cartoon
